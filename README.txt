@@ -5,3 +5,4 @@ Eziskukutyinpalkó?
 Igenkukutyinpalko!
 Megintkukutyinpalkó?
 Mámegint!
+Igenmeginkukutyinpalkó!
