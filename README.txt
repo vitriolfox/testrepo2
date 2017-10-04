@@ -2,3 +2,4 @@ Kukutyinpalkó!
 Megmégtöbbkukutyinpalkók!
 Megmégismégtöbbkukutyinpalkó!
 Eziskukutyinpalkó?
+Igenkukutyinpalko!
