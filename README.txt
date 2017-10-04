@@ -4,3 +4,4 @@ Megmégismégtöbbkukutyinpalkó!
 Eziskukutyinpalkó?
 Igenkukutyinpalko!
 Megintkukutyinpalkó?
+Mámegint!
